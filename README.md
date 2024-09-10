@@ -1,4 +1,5 @@
-![Uploading WhatsApp Image 2024-09-10 at 13.27.24.jpeg…]()
+![WhatsApp Image 2024-09-10 at 13 27 24](https://github.com/user-attachments/assets/598d3663-dd0f-4f5e-8650-19f2ed9f1309)
+
 
 
 <h1 align="center">Hi 👋, I'm Zeynep</h1>
