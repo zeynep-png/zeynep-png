@@ -1,4 +1,5 @@
-![MasterHead](https://ibb.co/Qm0mRQV)
+![Uploading WhatsApp Image 2024-09-10 at 13.27.24.jpeg…]()
+
 
 <h1 align="center">Hi 👋, I'm Zeynep</h1>
 <h3 align="center">A passionate backend developer from Turkey</h3>
