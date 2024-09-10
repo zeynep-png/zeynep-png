@@ -15,8 +15,6 @@
 
 - 📫 How to reach me **zeynepcakirtuana@gmail.com**
 
-
-<h3 align="left">Connect with me:</h3>
  
 
 <!--
