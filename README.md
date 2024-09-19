@@ -1,5 +1,3 @@
-![MasterHead](https://github.com/zeynep-png/zeynep-png/blob/main/img/WhatsApp%20Image%202024-09-10%20at%2013.27.24.jpeg)
-
 
 <div align="center">
  <a href="https://github.com/zeynep-png">
